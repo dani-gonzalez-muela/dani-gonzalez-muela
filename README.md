@@ -4,3 +4,5 @@
 
 - 📫 How to reach me: danielgonzalezmuela@gmail.com
 
+-Linkedin: https://www.linkedin.com/in/daniel-gonzalez-muela-0a96a31a5/ 
+
